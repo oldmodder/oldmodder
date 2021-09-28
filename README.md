@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @oldmodder
+- 👀 I’m interested in anything console mod and h4cking
+- 🌱 I’m currently learning everything i can, love code :), i'm polygot 
